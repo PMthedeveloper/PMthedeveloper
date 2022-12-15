@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **pmportfollio@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1n03dqKSuW0isSVU2nHrhZIIGWc3E2Ff0/view?usp=sharing](https://drive.google.com/file/d/1n03dqKSuW0isSVU2nHrhZIIGWc3E2Ff0/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1n03dqKSuW0isSVU2nHrhZIIGWc3E2Ff0/view?usp=sharing](https://drive.google.com/file/d/1ZPOSryLZnH8OrolKFfVbGBVq120Cv4tQ/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
